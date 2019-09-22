@@ -1,3 +1,0 @@
-# zdarova
-zdarova - zdarova
-fgj
